@@ -1,6 +1,6 @@
-> Token Gen: 15€
+> Token Gen: ***15€***
 
-> Token Gen Source: 20€
+> Token Gen Source: ***20€***
 
 Join https://discord.gg/onlp and open a ticket to buy
 
