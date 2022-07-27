@@ -2,7 +2,7 @@
 
 > Token Gen Source: ***20€***
 
-Join https://discord.gg/onlp and open a ticket to buy
+Join https://discord.gg/xtwitch and open a ticket to buy
 (Gen and booster, no tokens needed)
 
 Youtube vid: [youtube.com/watch?v=j3XQrweOC4M](https://www.youtube.com/watch?v=j3XQrweOC4M)
